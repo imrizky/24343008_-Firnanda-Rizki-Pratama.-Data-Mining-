@@ -1,0 +1,1 @@
+# 24343008_-Firnanda-Rizki-Pratama.-Data-Mining-
